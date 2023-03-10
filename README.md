@@ -1,7 +1,7 @@
 # My-Greatest-Fear.md
 
 # Summary
-This is a little write up about my greatest fear **failure**
+This is a little write up about my greatest fear **failure**.
 
 # Failure
 My **greatest fear** is about as generic as it comes. I'm afraid of failure. I know this soudns pretty cliche, but its true **failure** can be a pretty scay thing.
